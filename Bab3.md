@@ -1,0 +1,3 @@
+## Kancil Nyebrang Sungai
+
+Saat sedang berjalan, Kancil tiba di tepi sungai. Air sungai mengalir deras, membuatnya sedikit ragu untuk menyeberang. Namun, dengan cepat Kancil menemukan akal. "Aku bisa menyeberang menggunakan batu-batu besar itu!" pikirnya. Dengan hati-hati, Kancil melompat dari satu batu ke batu lainnya. Sesekali ia tergelincir, tapi berkat kelincahannya, Kancil berhasil menyeberangi sungai dengan selamat.
