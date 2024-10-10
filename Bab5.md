@@ -1,0 +1,3 @@
+## Kancil Ketemu Temen Baru
+
+Setelah kenyang, Kancil melanjutkan perjalanannya. Tiba-tiba, di tengah jalan, Kancil bertemu dengan seekor landak yang sedang kesulitan menggulung dirinya karena bulu-bulunya yang tajam. "Hai, kamu kenapa?" tanya Kancil. Landak itu menjelaskan bahwa ia kesulitan mencari tempat tidur yang nyaman. Kancil, dengan ide cemerlangnya, mengajak landak ke sebuah gua kecil yang penuh dengan daun-daun kering. Landak sangat berterima kasih dan mereka pun menjadi teman baru.
