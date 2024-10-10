@@ -1,0 +1,3 @@
+## Penutupan: Kesimpulan Petualangan
+
+Petualangan Kancil hari itu sangat seru. Dari berkeliling hutan, menyeberangi sungai, hingga bertemu teman baru, Kancil selalu menggunakan kecerdasannya untuk mengatasi rintangan. Ia belajar bahwa dengan keberanian dan kecerdasan, semua masalah bisa diselesaikan. "Hari ini sungguh menyenangkan!" ucap Kancil sambil tersenyum puas, siap untuk petualangan berikutnya.
