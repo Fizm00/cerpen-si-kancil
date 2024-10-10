@@ -1,0 +1,3 @@
+## Kancil Mampir ke Kebun
+
+Setelah berhasil menyeberang, Kancil merasa lapar. Ia melanjutkan perjalanan dan tiba di sebuah kebun sayur milik petani. Kebun itu penuh dengan berbagai macam sayuran segar: wortel, bayam, dan kubis yang tumbuh subur. Kancil tidak bisa menahan diri dan memutuskan untuk memakan beberapa wortel. "Wah, segar sekali!" seru Kancil sambil mengunyah. Tapi ia ingat untuk tidak terlalu rakus dan hanya mengambil secukupnya.
