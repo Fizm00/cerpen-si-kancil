@@ -1,0 +1,3 @@
+## Kancil Keliling Hutan
+
+Suatu pagi, Kancil memutuskan untuk berjalan-jalan menikmati keindahan alam hutan. Sinar matahari menembus dedaunan, membuat suasana semakin cerah. Kancil melompat-lompat riang di antara pepohonan, mendengarkan kicauan burung yang merdu. Ia juga melihat tupai yang sedang sibuk mengumpulkan makanan dan kelinci yang bersembunyi di balik semak-semak. Kancil sangat menikmati setiap langkah petualangannya di hutan.
